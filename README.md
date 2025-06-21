@@ -19,3 +19,9 @@
 👉 [Phần source của video](https://drive.google.com/drive/folders/1QeAohdFkAMGPcONqzVabHSW0IImf24Qe?usp=drive_link)
 
 👉 [Phần audio của video](https://drive.google.com/drive/folders/1yrJhgk5AmRp1WhDS83RUBMwiesxVkMv3?usp=drive_link)
+
+👉 [Phần source của video sau khi đã xử lý](https://drive.google.com/file/d/1sanR7MyUYMXed8rtuFKDeB3qfXXQlE0e/view?usp=sharing)
+
+👉 [Phần audio của video sau khi đã xử lý](https://drive.google.com/drive/folders/1yrJhgk5AmRp1WhDS83RUBMwiesxVkMv3?usp=drive_link)
+
+👉 [Phần Final của video](https://drive.google.com/file/d/1JrjY5sqZgSqL_OStYpYez31KDSNfl7Hv/view?usp=sharing)
