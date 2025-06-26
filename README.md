@@ -25,3 +25,5 @@
 👉 [Phần audio của video sau khi đã xử lý](https://drive.google.com/drive/folders/15JzzAD32BkzNjI1PyskkWr-YePxrUqj1?usp=sharing)
 
 👉 [Phần Final của video](https://drive.google.com/file/d/1JrjY5sqZgSqL_OStYpYez31KDSNfl7Hv/view?usp=sharing)
+
+👉 [Báo cáo](https://docs.google.com/document/d/17BuXZQ5g-PHF1iNWQW2IexYgDQ0tYaDk/edit?usp=sharing&ouid=105067415899115103905&rtpof=true&sd=true)
